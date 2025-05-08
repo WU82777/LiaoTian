@@ -1,4 +1,4 @@
-
+QUANBU  GEI NI LE.  
 
 图片我看不到，直接复制图片过来
 ![image](https://github.com/user-attachments/assets/7a6f9a41-c04b-4ac3-be48-9aae715ddb67)
